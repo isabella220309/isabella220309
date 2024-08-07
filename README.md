@@ -12,4 +12,4 @@ precoma.andrade@escola.pr.gov.br
 
 @isabella_cristina_precoma_andrade
 
-![image](https://github.com/user-attachments/assets/8f2ff81d-1f55-42d7-bb17-29f508fc5a76)
+![image](https://media1.tenor.com/m/PEtkro4L8k0AAAAC/grayson-pierce-stiles.gif)
